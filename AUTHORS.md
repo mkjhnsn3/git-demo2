@@ -1,3 +1,0 @@
-# authors
-
-- Mykaila Johnson
